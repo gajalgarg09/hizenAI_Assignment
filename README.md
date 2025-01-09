@@ -1,1 +1,0 @@
-# hizenAI_Assignment
